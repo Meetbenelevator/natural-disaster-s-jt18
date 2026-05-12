@@ -1,4 +1,4 @@
-#  
+#  automatic adopt me Script is the best adopt me Script, featuring fly and no cooldown. Safe and powerful for all your needs.
 
 
 
